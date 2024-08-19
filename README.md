@@ -20,5 +20,3 @@
 **Etecx is more than just a wireless technology; it's a catalyst for innovation. By choosing Etecx, you're investing in a future-proof solution that will empower your business to achieve new heights.**
 
 **To learn more about Etecx and how it can benefit your organization, please visit our website or contact our sales team.**
-
-[Your Website]
