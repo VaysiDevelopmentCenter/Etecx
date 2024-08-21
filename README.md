@@ -1,3 +1,6 @@
+![image (3)](https://github.com/user-attachments/assets/a3b4463a-17f2-4bc0-976b-0e4b6eaa55e1)
+
+
 ## **Etecx: Your Gateway to Seamless Wireless Connectivity**
 
 **Etecx** is a revolutionary wireless communication technology designed to redefine the possibilities of connectivity. With its exceptional range, low power consumption, and versatility, Etecx offers a comprehensive solution for industries seeking reliable and efficient wireless networks.
